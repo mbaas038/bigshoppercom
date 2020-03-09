@@ -1,0 +1,2 @@
+# bigshoppercom
+Alle domeinon
